@@ -1,5 +1,11 @@
 ### The story of the beaten child ###
 
+## intro 
+
+once there was a little child who had terrible parents 
+he was constantly hited by his father and force to drink by his mother 
+he was completly desesperated 
+
 
 
 In a neglected corner of the bustling city, Alex, a ten-year-old boy, lived in constant fear within the walls of a decaying house. Each night, he bore the marks of his father's anger, praying silently for an escape. 
